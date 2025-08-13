@@ -37,7 +37,7 @@ Stay tuned for coding tutorials, real-world projects, and tech tips!
 ---
 
 **Let’s learn & grow together!**  
-📌 **[Click here to Subscribe](hwww.youtube.com/@CoderVardhanKushwaha)**
+📌 **[Click here to Subscribe](www.youtube.com/@CoderVardhanKushwaha)**
 
 
 
